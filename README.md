@@ -1,5 +1,1 @@
-Hey I am Me_Hak
-I am a really curioicurious person but a lazy one.
-I will build little and small projects.
-I am Running towards better future were in slow and steady pace.
-
+Hey ! I'm Mehak A Full Stack Developer - a crazy and creative one .
