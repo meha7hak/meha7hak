@@ -1,1 +1,1 @@
-Hey ! I'm Mehak A Full Stack Developer - a crazy and creative one .
+Hey ! I'm Mehak A WEB DEVELOPER - a crazy and creative one .
